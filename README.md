@@ -1,4 +1,4 @@
-# GENOPOLE_SUMMER_SCHOOL
+# [GENOPOLE_SUMMER_SCHOO](http://www.genopole.fr/spip.php?page=rubrique_event&id_rubrique=1108&event=1108).
 ## Bioinformatic	and	biostatistic	tools in	medical	genomics
 ### 4-7	JULY	2017,	Châteauform	Les	Berges	de	Seine (Seine-Port	77)
 Summary
